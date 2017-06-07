@@ -1,7 +1,7 @@
 ### Remidi UTS
 
 ### Download
-[Download Aplikasi](https://drive.google.com/file/d/0B36Y2xO8CvzlMXdCbndVT2FtbDA/view?usp=sharing)
+[Download Aplikasi](https://drive.google.com/uc?export=download&id=0B36Y2xO8CvzlMXdCbndVT2FtbDA)
 
 ### Identitas Siswa :
 * Nama          : Elvira Ayu Sosilia
